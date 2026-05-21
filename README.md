@@ -38,7 +38,7 @@
 
 Если у вас есть интересная задача или предложение о сотрудничестве — пишите!
 
-* **Telegram:** [@neokamori] (https://t.me/neokamori)
+* **Telegram:** [@gothneo] (https://t.me/gothneo)
 * **Email:** `neokamori666@gmail.com`
 
 ---
